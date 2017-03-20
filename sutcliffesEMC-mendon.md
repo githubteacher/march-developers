@@ -2,4 +2,4 @@
 
 ### Great places to eat
 
-### Fun things to do
+#### Fun things to do

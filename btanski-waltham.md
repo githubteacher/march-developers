@@ -1,5 +1,5 @@
 ## Waltham, Ma
 
-### Great Places to East
+### Great Places to Eat
 
 ### Fun thing to do

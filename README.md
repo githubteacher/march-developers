@@ -2,16 +2,16 @@
 
 - Class Date: March 20 - 21, 2017
 - Facilitators:
- - @crichID :microphone:
- - @hectorsector :speech_balloon:
+  - @crichID :microphone:
+  - @hectorsector :speech_balloon:
 
 ## Talk to Us!!
 
-Gitter badge goes here!
+If you have a question or need assistance, you can get it in the GoToWebinar Q&A panel.
 
 ## Give Us Feedback
 
-Please take a moment to complete the class survey at: SURVEY-LINK.
+Please take a moment to complete the class survey at: https://goo.gl/iu3bfk
 
 ## Scripts for Adding Files
 

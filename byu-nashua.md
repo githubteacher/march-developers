@@ -1,5 +1,5 @@
 Nashua, NH
 
-Population:
-Mayor:
+Places to See
 
+Things to Do

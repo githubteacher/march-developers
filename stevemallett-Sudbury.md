@@ -5,3 +5,4 @@ Lotus Blossom is pretty decent.
 
 ##Fun Things To Do 
 See the Longfellow Inn.
+Pay exhorbitant property taxes.

@@ -1,1 +1,2 @@
 Boston, MA
+Hopkinton, MA

@@ -1,2 +1,6 @@
-Framingham, MA
+## Framingham, MA
+
+### Great places to eat
+
+### Fun things to do
 

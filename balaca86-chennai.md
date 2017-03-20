@@ -1,4 +1,6 @@
-## Chennai, TN
+## City    - Chennai
+## State   - Tamilnadu
+## Country - India
 
 
 ## Great places to eat

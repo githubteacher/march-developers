@@ -1,8 +1,16 @@
 ## Leesville, LA
 
-### Great places to eat
+### Great places to eat --> 
+
+The Mustard Seed
+B J's Diner
+Starlite Grill
+Checkers
  
 ### Fun things to do 
+
+Golf
+Wrestle gators
 
 
 

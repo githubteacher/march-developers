@@ -2,4 +2,4 @@
 
 ### Great Places to eat
 
-### Great Places to shop
+### Great Places to shop...

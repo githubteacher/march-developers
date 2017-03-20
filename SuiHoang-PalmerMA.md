@@ -1,3 +1,3 @@
 Palmer, MA
-Quabbin Reservoir
-Steaming Tender Depot Restuarant
+Place to visit: Quabbin Reservoir
+Palce to eat: Steaming Tender Depot Restaurant

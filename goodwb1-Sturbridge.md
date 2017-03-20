@@ -1,5 +1,5 @@
 ## Sturbridge, MA
 
-### places to eat
+### Places to eat
 
-### things to do
+### Things to do

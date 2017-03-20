@@ -14,4 +14,6 @@
 - Bring hiking shoes and a warm jacket to hike along the Crest Trail, even in the summer.
 - The former High Finance restaurant at the top of the mountain is to be replaced in 2018, so I'm not sure what food is available at the top of the mountain now.
 
+#### The Albuquerque acquarium is also nice.
+- Again, you can eat great seafood after your visit
 

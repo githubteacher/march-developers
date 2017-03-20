@@ -1,6 +1,6 @@
 ## Holly Springs, NC
 
-### Great Places to eat
+### Great Places to get a beer
 - Fainting Goat Brewery
 - Draft Line Brewery
 

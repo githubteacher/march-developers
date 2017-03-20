@@ -1,10 +1,10 @@
 ## Raleigh, NC
 
 ### Places to Visit
-NC State Bell tower
-Duke Gardens
+ - NC State Bell tower
+ - Duke Gardens
 
 ### Places to Eat
-Waraji
-Taste Vietnamese restaurant
-Angus Barn
+ - Waraji
+ - Taste Vietnamese restaurant
+ - Angus Barn

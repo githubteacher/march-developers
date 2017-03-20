@@ -1,3 +1,3 @@
-# Fun things to do
+# Fun things to do in hopkinton
 
 Hopkinton,MA
